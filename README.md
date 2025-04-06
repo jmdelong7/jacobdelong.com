@@ -1,1 +1,0 @@
-# jacobdelong.com
